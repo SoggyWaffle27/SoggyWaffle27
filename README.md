@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Code I guess
 - 💞️ I’m looking to collaborate on absolutly nothing. Im scared of group work
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Its more likely that you will die while going to buy a lottery ticket than to actually win.
+- ⚡ Fun fact: Its more likely that you will die while going to buy a lottery ticket (Powerball jackpot) than to actually win.
 
 <!---
 SoggyWaffle27/SoggyWaffle27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
